@@ -9,6 +9,7 @@ Join https://t.me/joinchat/97w3Avm8YtNiODNk for free trial.
 - Unique text-to-speech each call
 - Multiple languages supported
 - Multiple countries supported
+- Custom Caller ID (can be any company or bank)
 
 
 Join https://t.me/joinchat/97w3Avm8YtNiODNk for free trial.
